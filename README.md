@@ -1,1 +1,0 @@
-# Windows-Damaging-Tool
